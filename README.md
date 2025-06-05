@@ -1,5 +1,4 @@
 # 💫 About Me:
-I be doin shi
 ![artworks-000360839976-sc81j1-t500x500](https://github.com/user-attachments/assets/af3f1317-e820-4725-a27b-8afa2e075b19)
 
 
